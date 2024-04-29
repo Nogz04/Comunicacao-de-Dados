@@ -9,4 +9,4 @@ Autor: Matheus Nogueira Albuquerque
 
 
 
-                                                     -Todos os direitos reservados.
+                                                     Todos os direitos reservados.
